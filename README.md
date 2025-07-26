@@ -67,7 +67,9 @@ I'm constantly growing and expanding my knowledge! Currently, I'm focusing on:
 I'm always open to collaborating on projects, sharing knowledge, or discussing data-related topics!
 
 LinkedIn: www.linkedin.com/in/mmehrangez
+
 Email: mehrangezmelikova@gmail.com
+
 Portfolio Website: 
 ---
 
